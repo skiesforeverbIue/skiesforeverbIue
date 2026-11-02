@@ -1,5 +1,2 @@
-<p align="center"> <img src="https://media.tenor.com/suAXiv7AkxYAAAAM/seonghwa-kiss.gif"/> 
-<div align="center"> ᴄʜᴇᴄᴋ ʀᴇɴᴛʀʏ ꜰᴏʀ ɪɴꜰᴏ! ^_^   </div>
-<p align="center"> <img src="https://static.wikia.nocookie.net/bandori/images/2/2a/Our_Notes_Miku.png/revision/latest?cb=20260115002920"/> 
-<p align="center"> <img src="https://static.wikia.nocookie.net/bandori/images/3/34/Ikka_Dumb_Rock_Logo.png/revision/latest/scale-to-width-down/150?cb=20260925115013"/> 
-
+<div align="center"> usually low on energy, sry if i reply late. ^_^   </div>
+<p align="center"> <img src="https://static.wikia.nocookie.net/bandori/images/0/0f/A_Smile_Appearing_from_the_Water%27s_Sound_T_transparent.png/revision/latest/scale-to-width-down/985?cb=20250130141137"/> 
