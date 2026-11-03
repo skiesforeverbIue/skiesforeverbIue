@@ -1,3 +1,4 @@
+<p align="center"> <img src="https://i.pinimg.com/originals/3c/68/63/3c68632e9489a4b7cedcb072b8de7a89.gif"/>
 <p align="center"> <img width="60" src="https://komarev.com/ghpvc/?username=skiesforeverbIue&label=stars&color=b87474" alt="IHATECODEING"> 
 <div align="center"> c+h always welcome unless i have dni in my name! </div>
 <div align="center"> ✰i love all my friends✰ .ᐟ  </div>
