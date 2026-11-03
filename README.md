@@ -1,4 +1,4 @@
-<p align="center"> <img src="https://cdn.pfps.gg/banners/5770-spongebob-dance.gif"/>
+<p align="center"> <img src="https://cdn.pfps.gg/banners/5770-spongebob-dance.gif"/>  <img src="https://i.pinimg.com/736x/1e/eb/98/1eeb98ddbaa4349153a5bbcb67001c90.jpg"/> 
 <p align="center"> <img width="60" src="https://komarev.com/ghpvc/?username=skiesforeverbIue&label=stars&color=b87474" alt="IHATECODEING"> 
 <div align="center"> c+h always welcome unless i have dni in my name! </div>
 <div align="center"> ✰i love all my friends✰ .ᐟ  </div>
