@@ -3,5 +3,5 @@
 <div align="center"> c+h always welcome unless i have dni in my name! </div>
 <div align="center"> i love all my friends. <3 </div>
 <p align="center"> <img width="220" height="350" src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTfq8Bu0Rpd-sHRflRyzdrh6-k6Ei58gTshlbZwgj9r5NVF-_PUOo6dOA3c&s=10"/> 
-<p align="center"> 𓎢𓎟𓎡 <a href="https://yourlocalmizook.atabook.org/">ata</a> 𓏵 <a href="https://rentry.co/bowbowbowmizuinfo">rentry</a>  𓎢𓎟𓎡 </p>
+<p align="center"> ˗ˏˋ ★ ˎˊ˗ <a href="https://yourlocalmizook.atabook.org/">ata</a> ✧ <a href="https://rentry.co/bowbowbowmizuinfo">rentry</a>  ˗ˏˋ ★ ˎˊ˗ </p>
 
