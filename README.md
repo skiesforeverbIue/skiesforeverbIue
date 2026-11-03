@@ -1,4 +1,4 @@
-<img align="center" width="100" src="https://komarev.com/ghpvc/?username=skiesforeverbIue&color=orange" alt="IHATECODEING"> 
+<img align="center"> width="100" src="https://komarev.com/ghpvc/?username=skiesforeverbIue&color=b87474" alt="IHATECODEING"> 
 <div align="center"> check rentry for info. >v< </div>
 <div align="center"> c+h always welcome unless i have dni in my name! </div>
 <div align="center"> i love all my friends. <3 </div>
