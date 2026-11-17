@@ -3,6 +3,6 @@
 <div align="center"> c+h always welcome unless i have dni in my name! </div>
 <div align="center"> inconsistent pony town style.. bare with me LOL </div>
 <div align="center"> ✰i love all my friends✰ .ᐟ  </div>
-<p align="center"> <img width="220" height="300" src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTfq8Bu0Rpd-sHRflRyzdrh6-k6Ei58gTshlbZwgj9r5NVF-_PUOo6dOA3c&s=10"/> <img width="220" height="300" src="https://i.kym-cdn.com/photos/images/original/001/185/599/4fc.png"/> 
+<p align="center"> <img width="200" height="300" src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTfq8Bu0Rpd-sHRflRyzdrh6-k6Ei58gTshlbZwgj9r5NVF-_PUOo6dOA3c&s=10"/> <img width="200" height="300" src="https://i.kym-cdn.com/photos/images/original/001/185/599/4fc.png"/> <img width="200" height="300" src="https://preview.redd.it/thats-it-thats-the-meme-i-started-jojolion-and-im-liking-it-v0-2yj1yd9gz9wc1.jpeg?auto=webp&s=e3602f115eb21e449042615acb79443ab08b655e"/> 
 <p align="center"> ˗ˏˋ ★ ˎˊ˗ <a href="https://yourlocalmizook.atabook.org/">ata</a> ✧ <a href="https://rentry.co/bowbowbowmizuinfo">rentry</a>  ˗ˏˋ ★ ˎˊ˗ </p>
 
